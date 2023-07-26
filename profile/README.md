@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-**Here are some ideas to get you started:**
+**We are a leading practitioner in Providing Digital tools in the Logistics industry in Africa**
 
 🙋‍♀️ we provide digital services that enable you to optimize your supply chains in the right way to deliver more value
 <!--
